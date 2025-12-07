@@ -1,0 +1,2 @@
+# Lenovo_tb_x505f_StudyNM-backup
+从th7已经删除的仓库备份而来了x505f资源
